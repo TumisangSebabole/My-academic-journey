@@ -1,4 +1,4 @@
-# My-academic-journey
+# My Academic Journey
 
 I’m a 17-year-old student currently studying at Botswana Accountancy College. My academic journey began at Itumeleng Primary School, where I laid the foundations of my education. From there, I progressed to Sir Seretse Khama CJSS for my Junior Secondary Education, and later to Ledumang Senior Secondary School for my BGCSE studies.
 
